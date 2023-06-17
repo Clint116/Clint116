@@ -1,8 +1,9 @@
 - 👋 Hi, I’m @Clint116
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👀 I’m interested in ... nfts,crypto and web3 in genera. eill love to make Friends too
+- 🌱 I’m currently learning ... defi
+- 💞️ I’m looking to collaborate on ... nfts,crypto and defi
+- 📫 How to reach me ... twitter...clint_116, discord...clint#5007
+
 
 <!---
 Clint116/Clint116 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
