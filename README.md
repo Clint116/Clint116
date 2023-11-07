@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... nfts,crypto and web3 in genera. eill love to make Friends too
 - 🌱 I’m currently learning ... defi
 - 💞️ I’m looking to collaborate on ... nfts,crypto and defi
-- 📫 How to reach me ... twitter...clint_116, discord...clint#5007
+- 📫 How to reach me ... twitter...@addukee discord...clint16
 
 
 <!---
